@@ -1,6 +1,7 @@
 Currently pursuing B.Tech in Computer Science and Engineering with specialization in Gaming Technology at @VITBhopal.
 Graduating in 2024.
 
+• Reach me at dhruv.2002agg@gmail.com
 
 <!--
 ### Hi there 👋
