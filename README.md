@@ -1,6 +1,8 @@
 Currently pursuing B.Tech in Computer Science and Engineering with specialization in Gaming Technology at @VITBhopal.
 Graduating in 2024.
 
+As a car enthusiast, I am open to collaborating on projects related to automobile.
+
 • Reach me at dhruv.2002agg@gmail.com
 
 <!--
