@@ -1,6 +1,9 @@
-### Hi there 👋
+Currently pursuing B.Tech in Computer Science and Engineering with specialization in Gaming Technology at @VITBhopal.
+Graduating in 2024.
+
 
 <!--
+### Hi there 👋
 **askdhruv/askdhruv** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
